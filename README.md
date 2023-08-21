@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @honeypatel3
+- 👀 I’m interested in ux & ui
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on desiging.
+- 📫 How to reach me email
